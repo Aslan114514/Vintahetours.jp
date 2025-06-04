@@ -1,0 +1,1 @@
+# Vintahetours.jp
