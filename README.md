@@ -1,1 +1,1 @@
-# Vintahetours.jp
+# Vintagetours.jp
